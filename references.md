@@ -1,5 +1,1 @@
-Jobs
 
-Skills
-
-Education
